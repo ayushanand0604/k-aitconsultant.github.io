@@ -1,0 +1,1 @@
+# k-aitconsultant.github.io
